@@ -15,7 +15,7 @@ I also particiapted in a hackathon, where over six hours our group created [an a
 
 I'm a textbook introvert and I love to research whatever I don't know and to re-check whatever I'm not sure of.  
 I used to be a lawyer and a wannabe rockstar, but I'm not anymore.  
-My hobbies are knitting, learning languages, petting my cats and pondering.
+My hobbies are knitting 🧶, learning languages 📚, petting my cats 🐈🐈‍⬛ and pondering 🤔.
 
 You can text me here:  
 [telegram](t.me/grrrgrrrgrrr)  
