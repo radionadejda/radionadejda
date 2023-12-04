@@ -1,5 +1,5 @@
 ### Hi everyone
-### I'm Nadejda and I'm another frontend developer.
+### I'm Nadejda and I'm a frontend developer.
 Apparently one has to network these days, so here we go.  
 <img src="https://github.com/radionadejda/radionadejda/blob/main/cat-computer.gif" width="150" height="150"> 
 
